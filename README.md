@@ -8,6 +8,8 @@ As they settle in for an evening of gaming, a routine Wi-Fi reboot leads Jason t
 Back in their own time, the boys notice signs that indicate a strong connection between the past from which they have just returned and the present.
 "Eighth Bean" unfolds as a gripping tale where the boundaries of reality blur. Jason and Kyle's lives, once grounded in the familiar rhythms of school and family, are now entwined with the fabric of a futuristic future world. As they piece together the puzzle, they realize their discovery might be more than a thrilling adventure.
 
+E-book version (link to Google drive): 
+https://drive.google.com/file/d/1E1B1YnhCdFIhdn1syKuIIaPztN3J6Eyy/view?usp=sharing
 
 Available on Amazon
 1. Paperback:
